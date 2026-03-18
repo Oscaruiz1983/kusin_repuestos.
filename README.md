@@ -1,1 +1,0 @@
-# kusin_repuestos.
